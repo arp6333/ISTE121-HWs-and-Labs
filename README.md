@@ -1,1 +1,1 @@
-No HW6 - not required
+No HW6
